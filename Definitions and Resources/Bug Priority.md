@@ -1,0 +1,1 @@
+Bug Priority refers to the urgency with which a defect needs to be fixed. It measures how quickly the issue should be resolved based on the business impact or the project timeline. The defect priority of a defect can also be classified into different levels such as high, medium, or low.

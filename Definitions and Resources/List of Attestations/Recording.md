@@ -1,0 +1,1 @@
+Keeping a digital note of events, achievements, or incidents.

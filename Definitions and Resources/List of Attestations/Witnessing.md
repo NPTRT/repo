@@ -1,0 +1,1 @@
+Attesting to the occurrence of an event, action, or decision.

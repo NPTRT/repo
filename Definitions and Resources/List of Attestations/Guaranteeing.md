@@ -1,0 +1,1 @@
+Assuring the quality, durability, or performance of a product or service.

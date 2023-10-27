@@ -1,0 +1,1 @@
+Publicly supporting or recommending a product, service, or individual.

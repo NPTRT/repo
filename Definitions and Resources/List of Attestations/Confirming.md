@@ -1,0 +1,1 @@
+Corroborating an event, transaction, or activity.

@@ -1,0 +1,1 @@
+Making a formal or official statement about a fact, intention, or belief.

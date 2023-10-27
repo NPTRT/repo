@@ -1,0 +1,1 @@
+Establishing the genuineness of an item, artwork, or collectible.

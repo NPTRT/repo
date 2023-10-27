@@ -1,0 +1,1 @@
+Recording preferences or decisions in elections or community polls.

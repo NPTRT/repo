@@ -1,0 +1,1 @@
+Confirming the authenticity of a product or the accuracy of information.

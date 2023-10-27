@@ -1,0 +1,1 @@
+Confirming the legitimacy of a claim, be it health records, financial status, or any other data.
